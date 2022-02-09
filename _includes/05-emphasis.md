@@ -1,0 +1,1 @@
+I learned how to code in html, SQL and python during my Eighth grade 🤦, which i actually didnt really got 🥖! maintenant j'emphase mon texte pour montrer que je sais utiliser les différents outils de github __*hinhinhinhhnhinhin*__ oui **oui**
